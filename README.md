@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @smoresxo
+- 👀 I’m interested in coding websites
+- 💞️ I’m looking to collaborate on Discord
+- 📫 How to reach me: Discord: @smoresxo. (with period at end).
